@@ -1,4 +1,6 @@
 # QuartzSec Did This. Yes They Did. What do you Mean No ? Wanna Fight ? Ok Iam Seing Shadows In My Bedroom HELP.
+- Anyways Join The Telegram or else Your Gay or else A Jew or both... a  gay jew
+- https://t.me/QuartzSec
 
 <div>
 <img src="photo_2024-03-16_04-59-14.jpg"/>
